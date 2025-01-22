@@ -66,6 +66,6 @@ Lo que no se repasa se olvida eventualmente. En lugar de tratar de aprender repa
 
 ### La memoria “activa” está sobrevalorada
 
-Poder recitar de memoria la información que hemos aprendido es comúnmente el enfoque principal que se le da al aprendizaje. El punto de los exámenes es cuantificar qué tanto hemos aprovechado. Pero la memoria “activa” es difícil de mantener, y en la práctica, solo algunas personas pueden desarrollar este tipo de memoria de manera significativa
+Poder recitar de memoria la información que hemos aprendido es comúnmente el enfoque principal que se le da al aprendizaje. El punto de los exámenes es cuantificar qué tanto hemos aprovechado. Pero la memoria “activa” es difícil de mantener, y en la práctica, sólo algunas personas pueden desarrollar este tipo de memoria de manera significativa
 
 No que no sea importante, pero la memoria “pasiva” debería tener igual o mayor importancia. De otra forma es prácticamente imposible abarcar mayor contenido. El verdadero enfoque debería ser poder entender el contenido, saber que existe y que podemos regresar para utilizarlo en cualquier momento que necesitemos.
