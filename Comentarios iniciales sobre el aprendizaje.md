@@ -8,7 +8,7 @@ X estudia de manera pasiva. Lee el capítulo o la sección de principio a fin me
 
 X pierde mucho tiempo en distracciones, depresiones, y sin saber en qué dirección caminar. Si X se propusiera una meta realista, probablemente podría alcanzarla. 
 
-Una meta como salir lo mejor posible en una clase cambiaría totalmente los resultados. Este es el primer paso para incrementar el IQ.
+Una meta como salir lo mejor posible en una clase cambiaría totalmente los resultados. Este es el primer paso para incrementar el TortugaIQ.
 
 ### Crear una identidad por encima de las metas
 
