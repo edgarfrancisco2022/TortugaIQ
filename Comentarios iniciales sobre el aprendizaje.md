@@ -52,7 +52,7 @@ Pero alguien podría decidir utilizar su creatividad para convertirse en experto
 
 X lee que está científicamente comprobado que una técnica es de las más efectivas para el aprendizaje. Pero X no logra motivarse a emplear la técnica con la frecuencia necesaria porque le parece un tanto “tediosa”, o “aburrida”, y muchas veces prefiere no estudiar a estudiar “mal”.
 
-Por otro lado, también ha leído que ciertas otras técnicas no son tan recomendadas, pero son justo las que mayor lo motivan a estudiar.  Y en lugar de utilizar su creatividad para experimentar con la técnica y comprobar por sí mismo, la utiliza con cierto remordimiento, perdiendo de esta forma el sentido de desarrollo.  
+Por otro lado, también ha leído que ciertas otras técnicas no son tan recomendadas, pero son justo las que mayor lo motivan a estudiar.  Y en lugar de utilizar su creatividad para experimentar con las técnicac y comprobar por sí mismo, las usa con cierto remordimiento y de manera pasiva, perdiendo de esta forma el sentido de desarrollo.  
 
 X no sabe que el propósito del aprendizaje es el uso de la creatividad y el sentido de desarrollo, y es mejor avanzar lento pero seguro, que “eficiente” pero inconstante. 🐢
 
