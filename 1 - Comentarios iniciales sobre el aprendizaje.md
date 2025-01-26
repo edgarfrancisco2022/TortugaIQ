@@ -1,4 +1,4 @@
-# 1 - Comentarios iniciales sobre el aprendizaje
+# Comentarios iniciales sobre el aprendizaje
 
 ### **Aprendizaje Pasivo**
 
