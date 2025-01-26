@@ -8,8 +8,6 @@ Por ejemplo, si leemos de manera pasiva, podemos leer un párrafo de principio a
 
 Por otro lado, si leemos tratando de prestar atención a los conceptos clave, haciendo un esfuerzo consciente de guardarlos en la “memoria de trabajo”, al terminar de leer el párrafo nuestro nivel de comprensión será más alto. 
 
-Mientras más elementos podamos guardar en la memoria de trabajo mientras estudiamos, creando relaciones entre ellos, mayor será el entendimiento.
-
 ### Importancia de la memoria de trabajo
 
 La memoria de trabajo es bastante limitada en el sentido de que sólo puede retener poca información por un corto tiempo. Pero sirve para analizar, razonar, planear, comprender, relacionar, comparar, realizar operaciones, resolver problemas, y tomar mejores decisiones. 
