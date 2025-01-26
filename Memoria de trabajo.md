@@ -33,7 +33,7 @@ Parece que no es mucha la diferencia, pero es como duplicar varias veces la memo
 ### TortugaIQ
 
 - Investigar acerca de la memoria de trabajo.
-- Entender cómo se relaciona la memoria de trabajo con la inteligencia.
+- Investigar cómo se relaciona la memoria de trabajo con la inteligencia.
 - Investigar si es posible aumentar la capacidad de la memoria de trabajo.
 - Listar los beneficios que podríamos obtener con un mejor uso de la memoria de trabajo.
-- Listar algunas ideas de práctica para mejorar el uso de la memoria de trabajo
+- Listar algunas ideas de práctica para mejorar el uso de la memoria de trabajo.
