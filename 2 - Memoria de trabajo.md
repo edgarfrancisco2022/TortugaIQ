@@ -16,7 +16,7 @@ De manera pasiva tal vez prestemos atención a una sola cosa a la vez, pero podr
 
 Parece que no es mucha la diferencia, pero es como duplicar varias veces la memoria RAM de una computadora. No es lo mismo tener 2GB de RAM a tener 4, 8, 16, o 32. 
 
-### Aportación de la IA (ChatGPT  o1)
+### Diferencia entre la memoria de trabajo y la memoria a corto plazo - aportación de la IA (ChatGPT o1)
 
 *Podrías explicar de manera breve la diferencia entre la memoria a corto plazo y la memoria de trabajo con una analogía?*
 
