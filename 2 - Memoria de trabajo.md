@@ -6,7 +6,7 @@ Una de las formas de incrementar la inteligencia es simplemente prestando atenci
 
 Por ejemplo, si leemos de manera pasiva, podemos leer un párrafo de principio a fin, y no tener una buena compresión. 
 
-Por otro lado, si leemos tratando de prestar atención a los conceptos clave, haciendo un esfuerzo consciente de guardarlos en la “memoria de trabajo”, y creando relaciones entre ellos, al terminar de leer el párrafo nuestro nivel de comprensión será más alto. 
+Por otro lado, si leemos tratando de prestar atención a los conceptos clave, haciendo un esfuerzo consciente de guardarlos en la “memoria de trabajo”, y creando relaciones entre ellos en la mente, al terminar de leer el párrafo nuestro nivel de comprensión será más alto. 
 
 ### Importancia de la memoria de trabajo
 
