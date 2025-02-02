@@ -24,6 +24,6 @@ Y por eso pisotean a los niños, para que no vean la maldad de los de arriba. Po
 
 Sacrifican a Cristo para santificar a Cristo. Porque su Cristo es el César, y al Cristo que crucifican es el Cristo que tiene síndrome de down.
 
-Porque estos son los que tienen el espíritu más elevado que todos los demonios que gobiernan, los que tienen síndrome de down, este es el espíritu del Cristo que el Cristo les manda humillar fiesta solemne tras fiesta solemne. 
+Porque estos son los que tienen el espíritu más elevado que todos los demonios que gobiernan, los que tienen síndrome de down, éste es el espíritu del Cristo que el Cristo les manda humillar fiesta solemne tras fiesta solemne. 
 
 **He aquí vuestro rey - crucifíquenle vosotros.**
