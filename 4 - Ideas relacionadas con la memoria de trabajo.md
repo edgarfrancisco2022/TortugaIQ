@@ -2,7 +2,7 @@
 
 No somos expertos en el área en lo más mínimo; de momento, el interés es más por el desarrollo de la creatividad que por el desarrollo de la ciencia (por falta de tiempo para estudiar).
 
-Las siguientes son algunas ideas obtenidas por medio de la reflexión.
+Las siguientes son algunas ideas obtenidas por medio de la reflexión (y el estudio..).
 
 1. La memoria de trabajo que se relaciona con la memoria a corto plazo no es tan útil como la memoria de trabajo que se relaciona con la memoria a largo plazo (al parecer, existe un término: "Long Term Working Memory").
 2. Cuando estudiamos un tema complejo, podemos concentrarnos, por ejemplo, durante una hora en una sola lección. Podemos leer y releer tantas veces como sea necesario para mejorar la comprensión. Durante este tiempo, la memoria de trabajo puede llegar a guardar y utilizar mucha más información que cuando simplemente leemos una sola vez.
