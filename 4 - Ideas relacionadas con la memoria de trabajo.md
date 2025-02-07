@@ -10,7 +10,7 @@ La memoria de trabajo que se relaciona con la memoria a corto plazo no es tan ú
 
 > Al parecer, existe un término para esto: **"Long Term Working Memory"**.
 
-***
+___
 
 ### 2. Estudio intensivo y capacidad de retención
 
