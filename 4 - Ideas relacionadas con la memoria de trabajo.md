@@ -6,7 +6,7 @@ Las siguientes son algunas ideas obtenidas por medio de la reflexión.
 
 <hr style='width:100%; border:none; height:1px; background-color:white; color:white; margin:20px;'>
 
-### 1. Memoria de trabajo y su relación con la memoria a corto y largo plazo
+### 1. Long Term Working Memory
 
 La memoria de trabajo que se relaciona con la memoria a corto plazo no es tan útil como la memoria de trabajo que se relaciona con la memoria a largo plazo.
 
@@ -14,7 +14,7 @@ La memoria de trabajo que se relaciona con la memoria a corto plazo no es tan ú
 
 <hr style='width:100%; border:none; height:1px; background-color:white; margin:20px;'>
 
-### 2. Estudio intensivo y capacidad de retención
+### 2. Estudio intensivo
 
 Cuando estudiamos un tema complejo, podemos concentrarnos, por ejemplo, durante una hora en una sola lección. Podemos leer y releer tantas veces como sea necesario para mejorar la comprensión.
 
@@ -22,7 +22,7 @@ Durante este tiempo, la memoria de trabajo puede llegar a guardar y utilizar muc
 
 <hr style='width:100%; border:none; height:1px; background-color:white; margin:20px;'>
 
-### 3. Ventajas y desventajas en tests cronometrados
+### 3. Tests cronometrados
 
 El énfasis de los tests de comprensión en cronometrar el tiempo da ventaja a quienes están familiarizados con los temas y desventaja a quienes no.
 
@@ -38,7 +38,7 @@ Pero, al dedicar más tiempo a estudiar una sola lección, es posible llegar a e
 
 <hr style='width:100%; border:none; height:1px; background-color:white; margin:20px;'>
 
-### 5. Estrategias para mejorar la comprensión y la memoria de trabajo
+### 5. Estrategias
 
 - De manera intuitiva, aprendemos a leer en una sola dirección, de principio a fin. Pero si queremos aumentar la capacidad de la memoria de trabajo, el razonamiento y la comprensión, es mucho mejor aprender a leer en cualquier dirección, saltando de un lugar a otro si es necesario, tantas veces como sea necesario.
 
@@ -48,7 +48,7 @@ Pero, al dedicar más tiempo a estudiar una sola lección, es posible llegar a e
 
 <hr style='width:100%; border:none; height:1px; background-color:white; margin:20px;'>
 
-### 6. La importancia de la concentración
+### 6. La concentración
 
 Hemos notado que **incrementar los niveles de concentración y mantenerlos es una habilidad que puede ser aprendida con la práctica**. Esta probablemente sea la manera más fácil de incrementar el **TortugaIQ** 🔍🐢.
 
