@@ -10,6 +10,7 @@ La memoria de trabajo que se relaciona con la memoria a corto plazo no es tan ú
 
 > Al parecer, existe un término para esto: **"Long Term Working Memory"**.
 
+
 ### 2. Estudio intensivo y capacidad de retención
 
 Cuando estudiamos un tema complejo, podemos concentrarnos, por ejemplo, durante una hora en una sola lección. Podemos leer y releer tantas veces como sea necesario para mejorar la comprensión.
