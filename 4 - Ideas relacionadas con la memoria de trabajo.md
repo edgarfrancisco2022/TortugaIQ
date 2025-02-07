@@ -1,7 +1,5 @@
 # Conclusiones relacionadas con la memoria de trabajo
 
-# Ideas relacionadas con la memoria de trabajo
-
 No somos expertos en el área en lo más mínimo; de momento, el interés es más por el desarrollo de la creatividad que por el desarrollo de la ciencia (por falta de tiempo para estudiar).
 
 Las siguientes son algunas ideas obtenidas por medio de la reflexión.
