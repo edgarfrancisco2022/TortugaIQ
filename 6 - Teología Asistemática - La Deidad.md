@@ -40,7 +40,7 @@
 
 🔹 No que el acto de lavar los pies tenga valor, porque el valor del texto es el significado espiritual de las cosas, y este es el significado, que el Cristo no viene a ser adorado. Porque el rito no tiene mayor poder que la ley de purificar el interior. De nada sirve romantizar la escena, porque la justicia del reino que el Cristo anuncia no se alcanza lavando los pies de los hombres.
 
-🔹 Por lo cual el Cristo no viene a ser adorado, no viene a juzgar por medio de una ley, no reconoce autoridad terrenal, ni siquiera la de sus padres, no viene a ser servido, no viene a recoger tributo, no viene a ser respetado, ni viene a ser amigos de los empoderados del reino. 
+🔹 Por lo cual el Cristo no viene a ser adorado, no viene a juzgar por medio de una ley, no reconoce autoridad terrenal, ni siquiera la de sus padres, no viene a ser servido, no viene a recoger tributo, no viene a ser respetado, ni viene a ser amigo de los empoderados del reino. 
 
 🔹 El Cristo viene a ofender y a ser escupido, a responder a la autoridad y ser abofeteado, a tomar el látigo y anunciar la destrucción del templo, viene a romper la cortina que divide el lugar santo y el lugar santísimo, cancelando de esta forma la adoración de la deidad, viene a condenar a los ricos, anunciando su exclusión del reino de los cielos, y viene a hacerse igual a Dios independiente de toda autoridad de este mundo. Y por eso lo crucificaron. 
 
