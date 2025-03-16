@@ -48,8 +48,8 @@
 
 🔹 Por lo cual aquí se presentan 3 deidades: Jesús, Jesucristo, y el Cristo. El primero está ciego y no reconoce la maldad del sistema eclesiástico estatal. El segundo es un tirano que disfruta ser adorado por los hombres, y que lavándose las manos crucifica al tercero. El tercero es un rebelde que cuando muere exclama misteriosamente, “Padre, ¡por qué me has abandonado!”. 
 
-🔹 Barenrich no conoce los misterios, pero una traducción lógica de esta última frase podría ser, “Padre, ¡por qué me has crucificado!”. Algo así como lo que Isaac hubiera gritado cuando Abraham levantó la daga para degollarlo.
+🔹 Barenrich no conoce los misterios, pero una traducción lógica de esta última frase es, “Padre, ¡por qué me has crucificado!”. Algo así como lo que Isaac hubiera gritado cuando Abraham levantó la daga para degollarlo.
 
-🔹 Elegid pues bien a vuestro Dios, porque ninguno puede servir a dos señores porque aborrecerá a uno y amará al otro. 
+🔹 Elegid pues bien a vuestro Dios, porque ninguno puede servir a dos señores, porque aborrecerá a uno y amará al otro. 
 
 🔍🐢
