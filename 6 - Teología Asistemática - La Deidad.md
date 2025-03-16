@@ -42,7 +42,7 @@
 
 🔹 Por lo cual el Cristo no viene a ser adorado, no viene a juzgar por medio de una ley, no reconoce autoridad terrenal, ni siquiera la de sus padres, no viene a ser servido, no viene a recoger tributo, no viene a ser respetado, ni viene a ser amigos de los empoderados del reino. 
 
-🔹 El Cristo viene a ofender y a ser escupido, a responder a la autoridad y ser abofeteado, a tomar el látigo y anunciar la destrucción del templo, viene a romper la cortina que divide el lugar santo y el lugar santísimo, cancelando de esta forma la adoración de la deidad, viene a condenar a los ricos, anunciando su exclusión del reino de los cielos, y viene a hacerse igual a Dios independiente de toda autoridad de este maldito mundo. Y por eso lo crucificaron. 
+🔹 El Cristo viene a ofender y a ser escupido, a responder a la autoridad y ser abofeteado, a tomar el látigo y anunciar la destrucción del templo, viene a romper la cortina que divide el lugar santo y el lugar santísimo, cancelando de esta forma la adoración de la deidad, viene a condenar a los ricos, anunciando su exclusión del reino de los cielos, y viene a hacerse igual a Dios independiente de toda autoridad de este mundo. Y por eso lo crucificaron. 
 
 🔹 Pero Jesucristo se quedó con el negocio, con las riquezas y con el poder, y con el espíritu de Napoleón estableció un imperio terrenal. Jesucristo la abstracción de la ira del sistema de este mundo, la cual sólo puede ser apaciguada con dones de adoración, alabanza, temor reverente, abnegación y servicio voluntario, confesión de doctrinas, y ofrendas monetarias y espirituales. 
 
