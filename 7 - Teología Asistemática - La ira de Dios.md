@@ -12,7 +12,7 @@ Por lo cual, cuando la ira de Dios cae sobre Juan el Bautista, los espíritus de
 
 La ira de Dios no se desata estrictamente a causa de la transgresión de la ley. La ira de Dios se desata cuando un espíritu decide no participar o aportar a la gloria de Dios, cuando Dios anticipa que la llamada “justicia” con la que gobierna podría ser revelada delante de los espíritus como falsa, cuando uno de los espíritus logra ver en el espíritu el mal espíritu, o la transgresión o el pecado de Dios, o cuando un espíritu logra ver en el espíritu que Dios no merece el respeto que demanda, o en situaciones similares que no tienen que ver estrictamente con el llamado “pecado” de los sujetos.
 
-En el relato del asesinato de Juan el Bautista están en juego estas cosas, la autoridad de los reyes, su justicia, su gloria, el respeto, el temor y la reverencia con los cuales son bautizados como reyes por los miembros de la corte, quienes a su vez son envueltos en esta misma gloria bautizados por los sujetos que están por debajo de ellos.
+En el relato del asesinato de Juan el Bautista están en juego estas cosas, la autoridad de los reyes, su justicia, su gloria, el respeto, el temor y la reverencia con los cuales son bautizados como reyes por los miembros de la corte, quienes a su vez son envueltos en esta misma gloria, bautizados por los sujetos que están por debajo de ellos.
 
 El fin de la ira de Dios es la humillación o el sacrificio de los sujetos. La humillación de los sujetos es la trasferencia o la expiación del pecado o el mal espíritu de los dioses. Cuando el sujeto es humillado de esta forma se borra de los libros celestiales el pecado de Dios, lo cual significa que se borra del espíritu del sujeto que presenció en el espíritu el mal espíritu de Dios.
 
