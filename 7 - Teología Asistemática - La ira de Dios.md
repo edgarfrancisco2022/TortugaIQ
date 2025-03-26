@@ -1,6 +1,6 @@
 # 📌 Teología Asistemática - La ira de Dios
 
-La ira de Dios de este mundo es la ira del sistema, la ira del rey, la ira de los empoderados del reino, y la ira del grupo, que es el resultado de la suma de los espíritus de sus miembros, quienes a su vez buscan cada uno su propio interés. 
+La ira del Dios de este mundo es la ira del sistema, la ira del rey, la ira de los empoderados del reino, y la ira del grupo, que es el resultado de la suma de los espíritus de sus miembros, quienes a su vez buscan cada uno su propio interés. 
 
 La ira de Dios no es simplemente una ley, no es simplemente el resultado de la naturaleza o biología humana. 
 
