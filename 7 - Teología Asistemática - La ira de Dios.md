@@ -24,7 +24,7 @@ En otras palabras, cuando Herodes da el decreto de matar a Juan, no puede ser ex
 
 La ira de Dios siempre es santificada, de otra forma Dios sería revelado como un demonio. Por lo cual David dice, “Tu sangre sea sobre tu cabeza, pues tu misma boca atestiguó contra ti, diciendo: Yo maté al ungido de Jehová”. Sin embargo, el amalecita había hecho todo de acuerdo a buena consciencia, con el temor de Dios, y en el espíritu ninguno que lea los relatos puede condenarlo.
 
-Porque en otro lugar también dice que fue el Altísimo mismo quien mató a Saúl,  **”**Así murió Saúl por su rebelión con que prevaricó contra Jehová, contra la palabra de Jehová, la cual no guardó, y porque consultó a una adivina, y no consultó a Jehová; por esta causa lo mató, y traspasó el reino a David hijo de Isaí.”
+Porque en otro lugar también dice que fue el Altísimo mismo quien mató a Saúl,  “Así murió Saúl por su rebelión con que prevaricó contra Jehová, contra la palabra de Jehová, la cual no guardó, y porque consultó a una adivina, y no consultó a Jehová; por esta causa lo mató, y traspasó el reino a David hijo de Isaí.”
 
 Pero la paga del pecado es la muerte de los terceros. Porque David vendría a quedarse con el trono de Saúl, con su territorio, y con sus mujeres, matando a toda la casa de Saúl, dejando vivo a sólo uno de sus nietos, pero estas cosas están escritas como si no hubieran pasado.
 
