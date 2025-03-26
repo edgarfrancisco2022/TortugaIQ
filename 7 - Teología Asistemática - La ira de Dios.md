@@ -34,7 +34,7 @@ Pero 1 Crónicas 10 dice quién verdaderamente mató a Saúl. Por lo tanto, Davi
 
 Herodes no mata a Juan sin lavarse primero las manos, el acto tiene que ser primero santificado, probablemente por medio de un “juicio”, pero el relato no expresa estas cosas.
 
-El sacrificio de Isaac es santificado como un aura de obediencia incondicional y fe inquebrantable al Dios que lo demanda. Pero en el espíritu hubiera sido tan diabólico como cualquier otro sacrificio de cualquier otro niño demandado por cualquier otro Dios. 
+El sacrificio de Isaac es santificado con un aura de obediencia incondicional y fe inquebrantable en la justicia del Dios que lo demanda. Pero en el espíritu hubiera sido tan diabólico como cualquier otro sacrificio de cualquier otro niño demandado por cualquier otro Dios. 
 
 La expiación tiende a ser de arriba hacia abajo, porque los sujetos tienen poco poder para transferir su pecado hacia arriba, pero los de arriba sí tienen el poder. Y la idea de que los dioses se sacrifiquen para pagar por la culpa de los sujetos es prácticamente una fantasía.
 
