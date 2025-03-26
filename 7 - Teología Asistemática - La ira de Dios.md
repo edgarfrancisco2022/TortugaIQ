@@ -8,7 +8,7 @@ Los dioses que gobiernan tienen un acuerdo de poner bajo ira a los sujetos que s
 
 Algunos de los miembros del grupo aportan a la ira de Dios de manera activa y otros de manera pasiva. Unos aportan por egoísmo, otros por falsa inocencia, otros por temor, y otros por indiferencia. Pero todos tienen el conocimiento del bien y del mal y saben lo que están haciendo.
 
-Por lo cual, cuando la ira de Dios cae sobre Juan el Bautista, los espíritus demandan su cabeza. Herodías aporta a la ira del reino por egoísmo, su hija por falsa inocencia, Herodes por temor, y los miembros de la corte presentes por razones propias.
+Por lo cual, cuando la ira de Dios cae sobre Juan el Bautista, los espíritus demandan su cabeza. Herodías aporta a la ira del reino por egoísmo, su hija por falsa inocencia, Herodes por temor, y los miembros de la corte por razones propias.
 
 La ira de Dios no se desata estrictamente a causa de la transgresión de la ley. La ira de Dios se desata cuando un espíritu decide no participar o aportar a la gloria de Dios, cuando Dios anticipa que la llamada “justicia” con la que gobierna podría ser revelada delante de los espíritus como falsa, cuando uno de los espíritus logra ver en el espíritu el mal espíritu, o la transgresión o el pecado de Dios, o cuando un espíritu logra ver en el espíritu que Dios no merece el respeto que demanda, o en situaciones similares que no tienen que ver estrictamente con el llamado “pecado” de los sujetos.
 
