@@ -16,7 +16,7 @@ En el relato del asesinato de Juan el Bautista están en juego estas cosas, la a
 
 El fin de la ira de Dios es la humillación o el sacrificio de los sujetos. La humillación de los sujetos es la trasferencia del pecado o el mal espíritu de los dioses hacia los sujetos. Cuando el sujeto es humillado de esta forma se borra de los libros celestiales el pecado de Dios, lo cual significa que se borra del espíritu del sujeto que presenció en el espíritu el mal espíritu de Dios.
 
-En otras palabras, una vez que el sujeto es humillado, el sujeto sólo tiene el recuerdo del pecado de Dios como una idea o un hecho abstracto, pero en el espíritu el sujeto experimenta la culpa como si el pecado hubiera sido de él mismo, y no sólo esto, sino que en el espíritu el sujeto justifica a Dios, y lo vuelve a observar en el espíritu como justo y limpio.
+En otras palabras, una vez que el sujeto es humillado, el sujeto sólo tiene el recuerdo del pecado de Dios como una idea o un hecho abstracto, pero en el espíritu el sujeto experimenta la culpa como si el pecado hubiera sido de él mismo, y no sólo esto, sino que en el espíritu el sujeto justifica a Dios, y lo vuelve a observar en el espíritu como justo.
 
 La ira de Dios es expresada en el espíritu como un castigo de carácter infernal, pero a la luz de la ley, o las apariencias externas, es expresada como un juicio justo en presencia de los miembros de la corte real. 
 
