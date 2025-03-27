@@ -14,7 +14,7 @@ La ira de Dios no se desata estrictamente a causa de la transgresión de la ley.
 
 En el relato del asesinato de Juan el Bautista están en juego estas cosas, la autoridad de los reyes, su justicia, su gloria, el respeto, el temor y la reverencia con los cuales son bautizados como reyes por los miembros de la corte, quienes a su vez son envueltos en esta misma gloria, bautizados por los sujetos que están por debajo de ellos.
 
-El fin de la ira de Dios es la humillación o el sacrificio de los sujetos. La humillación de los sujetos es la trasferencia o la expiación del pecado o el mal espíritu de los dioses. Cuando el sujeto es humillado de esta forma se borra de los libros celestiales el pecado de Dios, lo cual significa que se borra del espíritu del sujeto que presenció en el espíritu el mal espíritu de Dios.
+El fin de la ira de Dios es la humillación o el sacrificio de los sujetos. La humillación de los sujetos es la trasferencia del pecado o el mal espíritu de los dioses hacia los sujetos. Cuando el sujeto es humillado de esta forma se borra de los libros celestiales el pecado de Dios, lo cual significa que se borra del espíritu del sujeto que presenció en el espíritu el mal espíritu de Dios.
 
 En otras palabras, una vez que el sujeto es humillado, el sujeto sólo tiene el recuerdo del pecado de Dios como una idea o un hecho abstracto, pero en el espíritu el sujeto experimenta la culpa como si el pecado hubiera sido de él mismo, y no sólo esto, sino que en el espíritu el sujeto justifica a Dios, y lo vuelve a observar en el espíritu como justo y limpio.
 
