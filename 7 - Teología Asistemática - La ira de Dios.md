@@ -28,7 +28,7 @@ Porque en otro lugar también dice que fue el Altísimo mismo quien mató a Saú
 
 Pero la paga del pecado es la muerte de los terceros. Porque David vendría a quedarse con el trono de Saúl, con su territorio, y con sus mujeres, matando a toda la casa de Saúl, dejando vivo a sólo uno de sus nietos, pero estas cosas están escritas como si no hubieran pasado.
 
-Por lo cual, para que los miembros de la corte no tengan consciencia de la transgresión es necesario matar al amalecita, juzgando con el juicio de Dios, declarando, “tu sangre sea sobre tu cabeza, pues tu misma boca atestiguó contra ti, diciendo: Yo maté al ungido de Jehová”
+Por lo cual, para que los miembros de la corte no tengan consciencia de la transgresión es necesario matar al amalecita, juzgando con el juicio de Dios, declarando, “tu sangre sea sobre tu cabeza, pues tu misma boca atestiguó contra ti, diciendo: Yo maté al ungido de Jehová”.
 
 Pero 1 Crónicas 10 dice quién verdaderamente mató a Saúl. Por lo tanto, David mata al amalecita por otras razones.
 
