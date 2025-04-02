@@ -1,4 +1,4 @@
-📌 Teología Asistemática - El Problema del Pecado
+# 📌 Teología Asistemática - El Problema del Pecado
 
 El llamado “problema del pecado” es extremadamente complejo y sólo podemos aspirar a comenzar a tener una idea de cuál es el problema.
 
