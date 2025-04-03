@@ -92,7 +92,7 @@ Porque querían alcanzar la sabiduría, conociendo entre el bien y el mal.
 
 Por lo cual, el pecado original, el cual podemos relacionar con la opresión de los espíritus, nace cuando el hombre busca diferenciar entre el bien y el mal, o cuando el hombre decide establecer leyes, normas, estatutos, doctrinas, y todo tipo reglas, creando de esta forma una distinción entre lo bueno y lo malo.
 
-Porque de acuerdo con el relato, el Creador les había dicho que podían comer del fruto de todo árbol del huerto, lo cual podría tener el significado de libertad absoluta, 0 restricciones, y la única restricción sería mirar en el árbol del conocimiento del bien y del mal para crear restricciones de acuerdo con el juicio subjetivo del interprete de las leyes, obtenidas del estudio del libro de la ciencia del bien y del mal. 
+Porque de acuerdo con el relato, el Creador les había dicho que podían comer del fruto de todo árbol del huerto, lo cual podría tener el significado de libertad absoluta, 0 restricciones, y la única restricción sería mirar en el árbol del conocimiento del bien y del mal para crear restricciones de acuerdo con el juicio subjetivo del interprete de las leyes, obtenidos del estudio del libro de la ciencia del bien y del mal. 
 
 Porque el árbol de la ciencia del bien y del mal no es un árbol, sino un libro, el libro prohibido de Dios.
 
