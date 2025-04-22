@@ -19,7 +19,7 @@ Además, el enfoque de estos canales suele centrarse en obtener buenos resultado
 
 En consecuencia, el tipo o la forma de estudiar que generalmente se enseña tiende a ser superficial.
 
-Por ejemplo, hay quien aconsejan aprender matemáticas “sin los números” al principio. La idea es entender primero los conceptos generales, la “estructura”, y luego añadir los “detalles”, o los números.
+Por ejemplo, hay quien aconseja aprender matemáticas “sin los números” al principio. La idea es entender primero los conceptos generales, la “estructura”, y luego añadir los “detalles”, o los números.
 
 Este enfoque solo tiene sentido si lo que se busca son resultados rápidos. Es mucho más fácil leer un libro superficialmente, construir una estructura general y después agregar los "acabados" numéricos.
 
