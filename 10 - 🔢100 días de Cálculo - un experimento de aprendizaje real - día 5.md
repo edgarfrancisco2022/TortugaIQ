@@ -11,7 +11,7 @@ Este material es especialmente valioso para estudiantes en edad escolar, y podr�
 
 Sin embargo, hemos notado que, a pesar de ofrecer ideas valiosas, también existe una especie de competencia por ver quién logra más con el menor esfuerzo posible, junto con una tendencia a exagerar lo que es realmente alcanzable.
 
-En otras palabras, los resultados que se prometen suelen no ser realistas. Se transmite la idea de que no es necesario dedicar más que un par de horas al día para alcanzar la excelencia. Incluso se sugiere que quien estudia más tiempo es porque no sabe estudiar bien.
+En otras palabras, los resultados que se prometen suelen no ser realistas. Se transmite la idea de que no es necesario dedicar más que un par de horas al día para alcanzar la "excelencia". Incluso se sugiere que quien estudia más tiempo es porque no sabe estudiar bien.
 
 Por esto, el consejo termina siendo una verdad a medias. En el ámbito musical hemos observado una actitud parecida: grandes músicos que dan la impresión de no necesitar práctica, como si todo dependiera de tener un sentido musical superior.
 
