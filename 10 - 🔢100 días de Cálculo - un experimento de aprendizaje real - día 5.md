@@ -23,7 +23,7 @@ Por ejemplo, hay quien aconsejan aprender matemáticas “sin los números” al
 
 Este enfoque solo tiene sentido si lo que se busca son resultados rápidos. Es mucho más fácil leer un libro superficialmente, construir una estructura general y después agregar los "acabados" numéricos.
 
-Esto podría funcionar en cierto tipo de exámenes, a largo plazo la estructura estaría destinada a colapsar.
+Esto podría funcionar en cierto tipo de exámenes, pero a largo plazo la estructura estaría destinada a colapsar.
 
 Porque, en realidad, es prácticamente imposible entender los conceptos matemáticos sin los números. O en otras palabras, no se puede entender las matemáticas sin matemáticas. Y para entender de verdad, es necesario romperse la cabeza con cada línea del libro, lamentablemente.
 
