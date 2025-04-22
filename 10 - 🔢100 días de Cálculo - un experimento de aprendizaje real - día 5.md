@@ -45,4 +45,5 @@ Existen maneras de repasar que nos ayudan a retener mejor la información, pero 
 > 
 
 Demasiado cansados para revisar.. ChatGPT cambió  un poco el estilo, pero la idea es lo que cuenta jeje 😑
+>
 🔍🐢
