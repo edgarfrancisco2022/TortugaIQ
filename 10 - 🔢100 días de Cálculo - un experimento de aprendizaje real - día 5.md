@@ -15,25 +15,25 @@ Sin embargo, hemos notado que, a pesar de ofrecer ideas valiosas, también exist
 
 En otras palabras, los resultados que se prometen suelen no ser realistas. Se transmite la idea de que no es necesario dedicar más que un par de horas al día para alcanzar la excelencia. Incluso se sugiere que quien estudia más tiempo es porque no sabe estudiar bien.
 
-Por esto, el consejo termina siendo una verdad a medias. En el ámbito musical hemos observado una actitud parecida: grandes músicos que dan la impresión de no necesitar práctica, como si todo dependiera únicamente de tener una inteligencia musical superior.
+Por esto, el consejo termina siendo una verdad a medias. En el ámbito musical hemos observado una actitud parecida: grandes músicos que dan la impresión de no necesitar práctica, como si todo dependiera de tener un sentido musical superior.
 
 Además, el enfoque de estos canales suele centrarse en obtener buenos resultados en exámenes, y rara vez en el aprendizaje a largo plazo.
 
 En consecuencia, el tipo o la forma de estudiar que generalmente se enseña tiende a ser superficial.
 
-Por ejemplo, algunos aconsejan aprender matemáticas “sin los números” al principio. La idea es entender primero los conceptos generales, la “estructura”, y luego añadir los “detalles”, es decir, los números.
+Por ejemplo, hay quien aconsejan aprender matemáticas “sin los números” al principio. La idea es entender primero los conceptos generales, la “estructura”, y luego añadir los “detalles”, o los números.
 
-Este enfoque solo tiene sentido si lo que se busca son resultados rápidos. Es mucho más fácil leer un libro superficialmente, construir una estructura general y después agregar los acabados numéricos.
+Este enfoque solo tiene sentido si lo que se busca son resultados rápidos. Es mucho más fácil leer un libro superficialmente, construir una estructura general y después agregar los "acabados" numéricos.
 
-Y si bien eso podría funcionar en cierto tipo de exámenes, a largo plazo esa estructura estaría destinada a colapsar.
+Esto podría funcionar en cierto tipo de exámenes, a largo plazo la estructura estaría destinada a colapsar.
 
-Porque, en realidad, es prácticamente imposible entender los conceptos matemáticos sin trabajar con los números. Dicho de otro modo: no se puede entender matemáticas sin matemáticas. Y para comprender de verdad, es necesario romperse la cabeza con cada línea del libro, lamentablemente.
+Porque, en realidad, es prácticamente imposible entender los conceptos matemáticos sin los números. O en otras palabras, no se puede entender las matemáticas sin matemáticas. Y para entender de verdad, es necesario romperse la cabeza con cada línea del libro, lamentablemente.
 
-El punto es que hablamos de cientos de horas de estudio solo para comprender las bases. Cualquiera que prometa lograr lo mismo en 20 o 30 horas usando “las mejores técnicas de estudio” no sabe de lo que habla, sin importar en qué escuela se haya graduado, con qué promedio, o cuántos seguidores tenga.
+El punto es, que hablamos de cientos de horas de estudio solo para comprender las bases. Cualquiera que prometa lograr lo mismo en 20 o 30 horas usando “las mejores técnicas de estudio” no sabe de lo que habla, sin importar en qué escuela se haya graduado, con qué promedio, o cuántos seguidores tenga.
 
-Supongamos que un libro tiene 500 páginas, y que se requieren al menos 20 minutos para leer y comprender cada una. En total, eso implicaría 10,000 minutos de estudio, es decir, aproximadamente 166 horas.
+Supongamos que un libro tiene 500 páginas, y que se requieren al menos 20 minutos para leer y entender cada una. En total, esto implicaría 10,000 minutos de estudio, o aproximadamente 166 horas.
 
-Y eso sin contar que, en la realidad, necesitamos repasar lo aprendido varias veces para recordarlo lo suficiente como para seguir avanzando. Además, suele haber páginas que nos toman mucho más tiempo del esperado. A veces, una sola sección puede llevarnos horas, especialmente en los casos más difíciles.
+Y esto sin contar que, en la realidad, necesitamos repasar lo aprendido varias veces para recordarlo lo suficiente como para seguir avanzando. Además, suele haber páginas que nos toman mucho más tiempo del esperado. A veces, una sola sección puede llevarnos horas, especialmente en los casos más difíciles.
 
 Y cuando finalmente llegamos al final del libro, descubrimos que solo hemos logrado retener una pequeña parte. Luego, semanas más tarde, nos damos cuenta de que hemos olvidado prácticamente todo… y que necesitamos volver a leer el libro desde el principio.
 
