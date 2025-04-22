@@ -25,7 +25,7 @@ Este enfoque solo tiene sentido si lo que se busca son resultados rápidos. Es m
 
 Esto podría funcionar en cierto tipo de exámenes, pero a largo plazo la estructura estaría destinada a colapsar.
 
-Porque, en realidad, es prácticamente imposible entender los conceptos matemáticos sin los números. O en otras palabras, no se puede entender las matemáticas sin matemáticas. Y para entender de verdad, es necesario romperse la cabeza con cada línea del libro, lamentablemente.
+Porque, en realidad, es prácticamente imposible entender los conceptos matemáticos sin los números. O en otras palabras, no se puede entender las matemáticas sin matemáticas. Y para entender de verdad, es necesario quebrarnos la cabeza en cada línea del libro, lamentablemente.
 
 El punto es, que hablamos de cientos de horas de estudio solo para comprender las bases. Cualquiera que prometa lograr lo mismo en 20 o 30 horas usando “las mejores técnicas de estudio” no sabe de lo que habla, sin importar en qué escuela se haya graduado, con qué promedio, o cuántos seguidores tenga.
 
