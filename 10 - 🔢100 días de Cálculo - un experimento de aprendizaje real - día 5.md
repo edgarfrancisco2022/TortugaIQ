@@ -42,6 +42,6 @@ Existen maneras de repasar que nos ayudan a retener mejor la información, pero 
 > ✍️ Texto revisado con la ayuda de ChatGPT (GPT-4) — claridad, ritmo y sentido común activados.*
 > 
 
-Demasiado cansados para revisar.. ChatGPT cambió  un poco el estilo, pero la idea es lo que cuenta jeje 😑
+Demasiado cansados para revisar.. ChatGPT cambió  un poco el estilo, pero la idea es lo que cuenta jeje 
 >
 🔍🐢
