@@ -1,7 +1,5 @@
 # 🔢100 días de Cálculo - un experimento de aprendizaje real - día 5
 
-> ✍️ Texto revisado con la ayuda de ChatGPT (GPT-4) — claridad, ritmo y sentido común activados.*
-> 
 
 Durante aproximadamente dos años hemos estado explorando, como un “hobby”, ideas sobre cómo estudiar mejor. En particular, en la plataforma de YouTube existen canales dedicados a enseñar técnicas de aprendizaje.
 
