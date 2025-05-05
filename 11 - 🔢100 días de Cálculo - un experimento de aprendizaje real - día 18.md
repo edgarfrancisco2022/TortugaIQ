@@ -45,7 +45,6 @@ Suele suceder que cuando nos atoramos es porque no estamos seguros de las bases,
 Antes no existía la inteligencia artificial y los estudiantes de matemáticas tenían que buscar o preguntar en foros y esperar a que alguien les contestara. Ahora ChatGPT, en la mayoría de los casos, ha sido la clave para resolver muchas de las dudas.
 
 ---
-> 
-✍️ *Texto Revisado por ChatGPT* (modelo GPT-4.5, parámetros de revisión: corrección ortográfica, gramática y ajustes menores en redacción respetando el estilo original)
+> ✍️ *Texto Revisado por ChatGPT* (modelo GPT-4.5, parámetros de revisión: corrección ortográfica, gramática y ajustes menores en redacción respetando el estilo original)
 >
 🔍🐢
