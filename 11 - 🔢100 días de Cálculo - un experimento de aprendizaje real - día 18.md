@@ -1,6 +1,6 @@
 A manera de contexto, es necesario compartir que, en los últimos 3 años, hemos estado estudiando matemáticas “de a ratos”, o como pasatiempo. Esto se traduce probablemente en más de 500 horas de estudio, comenzando “desde 0”, o desde los fundamentos más básicos como la suma y la resta.
 
-En los últimos días, en los que hemos dedicado mucho más tiempo de lo “normal”, hemos notado de manera más clara que existen ciertas dificultades que parecen complicar el avance y, al mismo tiempo, que hemos acertado en algunos otros aspectos.
+En los últimos días, en los que hemos dedicado mucho más tiempo de lo “normal”, hemos notado de manera más clara que existen ciertas dificultades o "errores" que parecen complicar el avance y, al mismo tiempo, que hemos acertado en algunos otros aspectos.
 
 ### Complicaciones
 
