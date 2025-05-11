@@ -1,4 +1,4 @@
-# 🔢100 días de Cálculo - un experimento de aprendizaje real - día 18⁕
+# 🔢100 días de Cálculo - un experimento de aprendizaje real - día 25⁕
 ⁕ Este blog es 100% experimental, podría tener errores y contradicciones, pero también algunas ideas que vale la pena conocer.
 <br>
 🔍🐢
