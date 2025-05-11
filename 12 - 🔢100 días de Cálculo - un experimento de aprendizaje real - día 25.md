@@ -1,4 +1,6 @@
-# 🔢100 días de Cálculo - un experimento de aprendizaje real - día 18
+# 🔢100 días de Cálculo - un experimento de aprendizaje real - día 18*
+* Este blog es un blog 100% experimental, podría tener errores, e incluso contradicciones, pero al mismo tiempo podría tener ideas que vale la pena conocer.
+🔍🐢
 
 ### Mínima Meta Viable
 
@@ -52,4 +54,5 @@ Suena como pensamiento ilusorio, pero en el pasado, antes de comenzar estudios d
 
 Pero en las últimas dos semanas hemos logrado memorizar docenas de este tipo de conceptos, con niveles de retención bastante elevados. Porque una vez que nos identificamos con nuestras metas, en este caso, con la idea de memorizar todas las fórmulas fundamentales de la materia, al parecer nuevos procesos cerebrales son activados.
 
+✍️ Texto Revisado por ChatGPT (modelo GPT-4.5, parámetros de revisión: corrección ortográfica, gramática y ajustes menores en redacción respetando el estilo original)
 🔍🐢
