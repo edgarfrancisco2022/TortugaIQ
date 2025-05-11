@@ -1,6 +1,7 @@
-# 🔢100 días de Cálculo - un experimento de aprendizaje real - día 18*
-/* Este blog es un blog 100% experimental, podría tener errores y contradicciones, pero también algunas ideas que vale la pena conocer.
-🔍🐢 */
+# 🔢100 días de Cálculo - un experimento de aprendizaje real - día 18⁕
+⁕ Este blog es 100% experimental, podría tener errores y contradicciones, pero también algunas ideas que vale la pena conocer.
+<br>
+🔍🐢
 
 ### Mínima Meta Viable
 
