@@ -85,12 +85,9 @@ Al acumular potencialmente cientos de conceptos e invertir tiempo en cada uno de
 
 Terminando con el tema de la constancia. Hemos decidido comenzar a llevar una cuenta de las horas de estudio para dejar de engañarnos a nosotros mismos. Aunque el verdadero enemigo a vencer es el mal espíritu. El que logra vencerlo encuentra la “perla de gran valor”, pero, como dice, primero “es necesario nacer de nuevo”…
 
-🔍🐢
-
 | 📅 Fecha | ➕10 min | ➕15 min | ➕30 min | ➕1 hr | 🧮 Total día | 🧮 Total Acumulado |
 | --- | --- | --- | --- | --- | --- | --- |
 | 05/21/25 |  |  |  | 2 | 2 | 2 |
 
-<br>
 ✍️ Texto Revisado por ChatGPT (modelo GPT-4.5, parámetros de revisión: corrección ortográfica, gramática y ajustes mínimos en redacción respetando el estilo original)<br>
 🔍🐢
