@@ -1,4 +1,5 @@
-🔢100 días de Cálculo - un experimento de aprendizaje real - día 35⁕
+# 🔢100 días de Cálculo - un experimento de aprendizaje real - día 35⁕
+
 **Este blog es experimental y podría tener errores y contradicciones, pero también algunas ideas que vale la pena conocer.*
 
 ### Constancia
