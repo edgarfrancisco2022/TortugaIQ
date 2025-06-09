@@ -42,7 +42,7 @@ Lamentablemente, entre más contenido busquemos retener o memorizar, mayor será
 
 - Mantener una lista de conceptos, o nombres de conceptos. Todo lo que busquemos retener debería tener un nombre; incluso podemos inventar nombres en caso de que no existieran.
 - Repaso en orden, de principio a fin (o “de fin a principio”). La lista de conceptos debe ser lineal, en el orden en que aparecen en el libro. Esto ayuda a crear conexiones necesarias para retener mejor el contenido y también para mejorar el entendimiento del contenido.
-- Práctica de memorización desde el primer repaso, como hemos descrito.
+- Práctica de memorización desde el primer repaso.
 - Combinar el repaso rápido con el repaso lento.
 - Releer cuanto sea necesario, especialmente en los primeros repasos, para mejorar la intuición y el entendimiento.
 - Reescribir la lista de conceptos en diferentes medios y mantenerla a la vista para hacer que sea un poco más relevante para el cerebro.
@@ -51,7 +51,7 @@ Lamentablemente, entre más contenido busquemos retener o memorizar, mayor será
 
 ### Ideas para la segunda parte del reto de estudio
 
-- Hemos pensado en experimentar definiendo “mini-listas” de conceptos dentro de la lista principal. Las mini-listas tendrían su propio nombre, que podría ser desde el nombre del capítulo, el nombre de la sección del libro, o nombres que nosotros mismos definamos para secciones no definidas por el libro. Esto con el propósito de practicar la memorización de varios conceptos al mismo tiempo.
+- Experimentar definiendo “mini-listas” de conceptos dentro de la lista principal. 
 - Tratar de memorizar soluciones de problemas “ejemplo” relacionados con conceptos específicos.
 - (Idea aportada por la Inteligencia Artificial) Usar grabaciones de voz para repasar conceptos hablados en voz alta y luego escucharlos en momentos de descanso o caminatas, como una forma de reforzar el material sin estar frente al papel.
 
