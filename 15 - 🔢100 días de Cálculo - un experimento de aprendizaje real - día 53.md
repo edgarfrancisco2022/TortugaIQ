@@ -54,3 +54,6 @@ Lamentablemente, entre más contenido busquemos retener o memorizar, mayor será
 - Hemos pensado en experimentar definiendo “mini-listas” de conceptos dentro de la lista principal. Las mini-listas tendrían su propio nombre, que podría ser desde el nombre del capítulo, el nombre de la sección del libro, o nombres que nosotros mismos definamos para secciones no definidas por el libro. Esto con el propósito de practicar la memorización de varios conceptos al mismo tiempo.
 - Tratar de memorizar soluciones de problemas “ejemplo” relacionados con conceptos específicos.
 - (Idea aportada por la Inteligencia Artificial) Usar grabaciones de voz para repasar conceptos hablados en voz alta y luego escucharlos en momentos de descanso o caminatas, como una forma de reforzar el material sin estar frente al papel.
+- 
+✍️ Texto Revisado por ChatGPT (modelo GPT-4o, parámetros de revisión: corrección ortográfica, gramática y ajustes mínimos en redacción respetando el estilo original)
+🔍🐢
