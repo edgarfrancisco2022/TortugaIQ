@@ -1,5 +1,6 @@
-🔢100 días de Cálculo - un experimento de aprendizaje real - día 82-100*
-***Este blog es experimental y podría tener errores y contradicciones**
+*🔢100 días de Cálculo - un experimento de aprendizaje real - día 82-100*
+
+**Este blog es experimental y podría tener errores y contradicciones**
 
 Al día 82 hemos decidido no continuar con este experimento. Esto se debe a que el propósito de encontrar un sistema de estudio “sustentable”, que nos ayude a aprender a “largo plazo”, ha sido cumplido de manera aceptable.
 
