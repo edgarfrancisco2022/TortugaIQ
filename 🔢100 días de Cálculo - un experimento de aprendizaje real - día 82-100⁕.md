@@ -1,4 +1,4 @@
-* 🔢100 días de Cálculo - un experimento de aprendizaje real - día 82-100
+🔢100 días de Cálculo - un experimento de aprendizaje real - día 82-100*
 
 **Este blog es experimental y podría tener errores y contradicciones**
 
