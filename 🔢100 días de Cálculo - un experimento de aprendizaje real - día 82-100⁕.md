@@ -9,7 +9,7 @@ Como último repaso, estos son algunos puntos importantes, la mayoría de los cu
 1. Seleccionar el mejor libro de texto posible.
 2. Enfoque en las bases y en la teoría, tratando de siempre entender lo más cercano al 100 %.
 3. Leer “palabra por palabra” al principio para adquirir un buen entendimiento e intuición.
-4. Releer si es necesario, especialmente cuando no hemos entendido al 100 % (sin embargo, lo ideal sería no tener que releer palabra por palabra).
+4. Releer si es necesario, especialmente cuando no hemos entendido al 100 % (sin embargo, lo ideal sería no tener que releer palabra por palabra para ahorrar el mayor tiempo posible).
 5. Subrayar o marcar las partes y palabras importantes para repasar, si es que el libro no utiliza un formato para enfatizarlas. (Aunque los libros de texto generalmente utilizan “cajas”, títulos, “negrillas”, gráficas, diagramas, etc., este paso no siempre sería necesario).
 6. Hacer una lista de nombres de conceptos y palabras clave, sin añadir mucho más.
 7. Repasar en orden utilizando el libro y/o la lista de palabras, tratando de que los repasos sean cada vez más rápidos.
