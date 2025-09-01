@@ -28,7 +28,7 @@ Por lo general, entre mayor el número de horas de experiencia, mayor es el cono
 
 Podríamos avanzar mucho más rápido con el simple hecho de preguntar qué, por qué, y cómo. Los  mejores ingenieros se hacen estas preguntas todo el tiempo. Además tienen una mentalidad optimista, y saben que tarde o temprano encontrarán la forma si continúan buscando. 
 
-*¿Qué es el problema o cuál es su origen? ¿Por qué ocurre? ¿Cómo se puede solucionar?*
+*¿Qué o cuál es el problema? ¿Por qué ocurre? ¿Cómo se puede solucionar?*
 
 Algunos problemas que surgen en el aprendizaje son los siguientes:
 
