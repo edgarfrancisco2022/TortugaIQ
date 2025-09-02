@@ -41,7 +41,7 @@ Lamentablemente, entre más contenido busquemos retener o memorizar, mayor será
 ### Sistema de estudio resumido (hasta el día 53 del reto de estudio)
 
 - Mantener una lista de conceptos, o nombres de conceptos. Todo lo que busquemos retener debería tener un nombre; incluso podemos inventar nombres en caso de que no existieran.
-- Repaso en orden, de principio a fin (o “de fin a principio”). La lista de conceptos debe ser lineal, en el orden en que aparecen en el libro. Esto ayuda a crear conexiones necesarias para retener mejor el contenido y también para mejorar el entendimiento del contenido.
+- Repaso en orden, de principio a fin ~~(o “de fin a principio”)~~. La lista de conceptos debe ser lineal, en el orden en que aparecen en el libro. Esto ayuda a crear conexiones necesarias para retener mejor el contenido y también para mejorar el entendimiento del contenido.
 - Práctica de memorización desde el primer repaso.
 - Combinar el repaso rápido con el repaso lento.
 - Releer cuanto sea necesario, especialmente en los primeros repasos, para mejorar la intuición y el entendimiento.
