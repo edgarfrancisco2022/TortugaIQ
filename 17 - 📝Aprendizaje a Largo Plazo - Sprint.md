@@ -4,13 +4,13 @@
 
 Esto es una continuación de un [experimento](https://github.com/edgarfrancisco2022/TortugaIQ/blob/main/16%20-%20%F0%9F%94%A2100%20d%C3%ADas%20de%20C%C3%A1lculo%20-%20un%20experimento%20de%20aprendizaje%20real%20-%20d%C3%ADa%2082-100%E2%81%95.md) realizado para mejorar el aprendizaje de una materia compleja como Cálculo.
 
-Estaremos tratando de encontrar formas o procesos de estudio que nos ayuden a alcanzar niveles de proficiencia profesional a largo plazo.
+😑 Estaremos tratando de encontrar formas o procesos de estudio que nos ayuden a alcanzar niveles de proficiencia profesional a largo plazo .
 
 No somos expertos en el campo del aprendizaje, pero hemos notado que la mayor parte del consejo popular tiene que ver con el aprendizaje a corto o mediano plazo, por ejemplo cómo sacar buenas calificaciones en la escuela.
 
 El tema del “Aprendizaje a Largo Plazo” pareciera no tratarse, y probablemente podríamos descubrir algunas ideas útiles por medio de un simple experimento práctico.
 
-De manera específica, estaríamos tratando de crear un sistema de estudios efectivo para el aprendizaje a largo plazo, experimentando de manera personal con el aprendizaje de las Matemáticas.
+De manera específica, estaríamos tratando de crear un sistema de estudios efectivo para el aprendizaje a largo plazo, experimentando de manera personal con el aprendizaje de las Matemáticas 🔢.
 
 🐢🔍
 
