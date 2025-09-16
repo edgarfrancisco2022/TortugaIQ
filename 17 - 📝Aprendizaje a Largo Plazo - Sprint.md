@@ -10,7 +10,7 @@ No somos expertos en el campo del aprendizaje, pero hemos notado que la mayor pa
 
 El tema del “Aprendizaje a Largo Plazo” pareciera no tratarse, y probablemente podríamos descubrir algunas ideas útiles por medio de un simple experimento práctico.
 
-De manera específica, estaríamos tratando de crear un sistema de estudios efectivo para el aprendizaje a largo plazo, experimentando de manera personal con el aprendizaje de las Matemáticas 🔢.
+De manera específica, estaríamos tratando de crear un sistema de estudios efectivo para el aprendizaje a largo plazo, experimentando de manera informal con el aprendizaje de las Matemáticas 🔢.
 
 🐢🔍
 
