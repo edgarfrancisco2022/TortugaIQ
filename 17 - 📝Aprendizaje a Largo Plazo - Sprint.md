@@ -1,4 +1,4 @@
-# Aprendizaje a Largo Plazo - Sprint
+# 📝 Aprendizaje a Largo Plazo - Sprint
 
 ***Este blog es experimental y podría tener errores y contradicciones**
 
