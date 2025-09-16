@@ -54,4 +54,6 @@ Pero, utilizando la idea de sprints, podríamos comenzar a pensar de la siguient
 
 De esta manera, al final de cada ciclo podemos ver resultados tangibles, analizar qué funcionó, qué no funcionó, y pensar en cómo podríamos hacer ajustes para que el siguiente sprint sea más efectivo.
 
+[Además, utilizar "sprints" haría el proceso más divertido 🤦‍♂️]
+
 🐢🔍
