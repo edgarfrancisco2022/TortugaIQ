@@ -14,7 +14,7 @@ De manera específica, estaríamos tratando de crear un sistema de estudios efec
 
 🐢🔍
 
-### Sprint
+### 🏃‍♂️ Sprint
 
 El concepto de “Sprint” es tomado de la metodología conocida como “Scrum”, utilizada en muchas compañías para el desarrollo de proyectos. 
 
