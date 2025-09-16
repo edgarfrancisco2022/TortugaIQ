@@ -50,7 +50,7 @@ Pero, utilizando la idea de sprints, podríamos comenzar a pensar de la siguient
 - La meta para este sprint es leer, entender, sintetizar, crear apuntes, y memorizar los datos importantes del capítulo 7 del libro de texto.
 - La meta para este sprint es simplemente leer x libro de principio a fin.
 - La meta para este sprint es crear una presentación de x tema.
-- La meta para este sprint es crear una “Guía Rápida” del libro completo.
+- La meta para este sprint es crear una “Guía Rápida” de la materia.
 
 De esta manera, al final de cada ciclo podemos ver resultados tangibles, analizar qué funcionó, qué no funcionó, y pensar en cómo podríamos hacer ajustes para que el siguiente sprint sea más efectivo.
 
