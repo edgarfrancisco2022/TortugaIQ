@@ -32,10 +32,6 @@ Al pasar de lo básico a lo avanzado comenzamos a valorar más las bases; al vol
 
 Cada vez que volvemos a leer o repasar, podemos cubrir el contenido de manera más rápida (saltando detalles que no sean tan importantes), de tal forma que después de varios repasos podemos revisar un libro completo en cuestión de días.
 
-- Constancia.
-
-No es que siempre seamos constantes, pero cuando lo hemos sido, los resultados se notan. Por ejemplo, darnos cuenta de que después de una semana de esfuerzos hemos avanzado 100 páginas, cuando generalmente, por falta de constancia, lo mismo suele tomarnos un mes.
-
 - No darse por vencido en las partes difíciles.
 
 A veces podemos durar días atorados, y da la sensación de que nunca vamos a poder pasar el “muro” que tenemos enfrente. Pero esto es parte del proceso. Siempre que nos atoramos debemos preguntarnos exactamente por qué, qué paso o qué pasos del problema no entendemos, y qué podemos hacer para entenderlos.
