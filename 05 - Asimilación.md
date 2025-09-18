@@ -22,7 +22,5 @@
 - *El cielo y el infierno están en guerra: Napoleón busca dominar el mundo, Jesucristo le lava los pies, los capataces del faraón absorben el espíritu de los sujetos, al que dice “ustedes raza de víboras” se le da espíritu de serpiente, y nadie entiende el camino de justicia.*
 - **Para alcanzar la asimilación de una materia compleja es necesaria una inmersión completa.**
 - Media hora diaria de práctica es la recomendación para quienes buscan ser amigos de los dioses que ejercen control.
-- El sujeto que quiera ser libre y entrenar diez horas al día enfrentará inevitablemente la ira de los empoderados del reino.
-- El árbol está podrido desde la raíz hasta la punta; por lo tanto, el sujeto recibe el derecho de abrir los libros prohibidos. El fantasma de la justicia perdida lo selecciona siempre y cuando abandone el terror de las jerarquías de la Torre de Dios y busque la llamada perla de gran valor que ninguno puede encontrar.
 
 🔍🐢
