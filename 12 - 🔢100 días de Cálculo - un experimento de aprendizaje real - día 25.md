@@ -30,28 +30,6 @@ De esta forma, el ciudadano comienza a adquirir el sentido de responsabilidad, e
 
 Pero incluso si la sociedad lo rechaza, el ciudadano tiene la capacidad de incrementar su sentido de responsabilidad consigo mismo al identificarse cada vez más con sus objetivos.
 
-### Ejemplos más específicos relacionados con esta investigación
-
-Hasta hace unas semanas no habíamos considerado la memorización como un elemento importante del aprendizaje. Esto es debido a que todas las experiencias que hemos tenido con la memorización han sido hasta cierto punto negativas.
-
-En primer lugar, porque no importa cuánto nos esforcemos, tendemos a olvidar la mayoría de lo que memorizamos (después del examen) en cuestión de días o semanas.
-
-En segundo lugar, porque pareciera que no existe un sistema de memorización que realmente “funcione”, especialmente cuando estamos hablando de aprendizaje a largo plazo.
-
-Pero ¿qué pasaría si decidiéramos identificarnos con la memorización, por ejemplo, de fórmulas, teoremas y procedimientos matemáticos? En otras palabras, si comenzáramos a vernos como personas que memorizan, o que tienen un repertorio activo y en constante crecimiento de memorias.
-
-El cerebro se activaría en un grado mucho más alto y el sentido de responsabilidad con nosotros mismos incrementaría. Ya no estaríamos hablando de la “meta” de memorizar y retener cientos de fórmulas, lo cual es extremadamente vago para el cerebro, sino de la “necesidad” creativa de usar nuestra corta vida para memorizar tanto como podamos.
-
-De igual forma, puedo proponerme estudiar 40 horas a la semana y no lograr ni 15, no por falta de tiempo, sino por falta de constancia, porque el aburrimiento siempre reina cuando buscamos hacer las cosas por nuestra “voluntad propia”.
-
-Pero si tomáramos el estandarte de la “constancia”, o el estandarte del que busca alcanzar el nivel de “experto”, o simplemente del concepto de estudiar 40 horas por semana como parte de nuestra identidad personal, la creatividad comenzaría a desplazar al aburrimiento.
-
-Si la **meta mínima viable** realmente fuese estudiar 40 horas por semana, y si, como el hombre de la parábola, cualquier cosa menos que eso fuera una vergüenza o una burla porque la identidad que hemos adoptado no nos lo permite, entonces probablemente lo lograríamos, siempre y cuando fuese realista.
-
-Suena como pensamiento ilusorio, pero en el pasado, antes de comenzar estudios de matemáticas, muchas veces intentamos memorizar un par de fórmulas, la fórmula para convertir de grados centígrados a Fahrenheit y viceversa, y nunca lo logramos. Lo hacíamos en el momento, pero días después ya no las recordábamos. Y después de haber intentado lo mismo probablemente más de 10 veces en diferentes ocasiones, al día de hoy seguimos sin saberlas de memoria.
-
-Pero en las últimas dos semanas hemos logrado memorizar docenas de este tipo de conceptos, con niveles de retención bastante elevados. Porque una vez que nos identificamos con nuestras metas, en este caso, con la idea de memorizar todas las fórmulas fundamentales de la materia, al parecer nuevos procesos cerebrales son activados.
-
 ✍️ Texto Revisado por ChatGPT (modelo GPT-4.5, parámetros de revisión: corrección ortográfica, gramática y ajustes menores en redacción respetando el estilo original)
 <br>
 🔍🐢
